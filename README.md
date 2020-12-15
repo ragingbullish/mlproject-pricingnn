@@ -1,1 +1,0 @@
-# @ Professor - we will be uploading our project today, December 14th.  Apologies if you view this before we upload it.  Send me an email and I'll email you the PDF directly - km4777@nyu.edu.  Thank you.
